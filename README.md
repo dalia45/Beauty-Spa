@@ -1,1 +1,1 @@
-# Beauty-Spa
+# Beauty-Spa.com
